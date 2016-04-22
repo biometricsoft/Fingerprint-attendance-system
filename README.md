@@ -1,0 +1,2 @@
+# Fingerprint-attendance-system
+Centris Infotech Services is well known for supplier of Quality of Biometric Time Attendance Systems in all over Tamilnadu. Fingerprint biometric attendance systems are best machines to solve all your problems related to time and attendance of the employee. Fingerprint Attendance Recorder can be used to uniquely identify person. Centris Infotech Services Supply us Good Quality of Time Attendance System at reasonable price . These are best Fingerprint Biometric Attendance System for managing time and attendance of employees.
